@@ -1,2 +1,2 @@
 #Egamer
-A render toy,Nothing can be talked and describe. 
+Ok let's go 
